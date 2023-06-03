@@ -1,1 +1,1 @@
-# Kabum Mega Maio, promoções 01/06/2023 06:46
+# Kabum, promoções 03/06/2023 09:59
